@@ -2,6 +2,7 @@
 fic project
 
 Group Members: 
-1.
-2.
-3.
+1. Mr. Bobby Chan
+2. Nathan Nguyen
+3. 
+4. 
